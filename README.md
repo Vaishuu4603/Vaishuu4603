@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...data analyst course
 - 📫 How to reach me ...
 - 😄 Pronouns: ...vaishu
-- ⚡ Fun fact: ...i am very sleepy person
+- ⚡ Fun fact: ...i am very sleepy person and I love to riding Bikes
 
 <!---
 Vaishuu4603/Vaishuu4603 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
